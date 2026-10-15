@@ -18,7 +18,7 @@ Motivated first-year B.Tech Biotechnology student aiming to build a strong found
 |---|---|---|---|---|---|
 | B.Tech Biotechnology (1st Year) | Lovely Professional University, Phagwara, Punjab | LPU | Biotechnology | 2026 – Present | Pursuing |
 | Class XII | Gulmohar Public School | CBSE | PCB | 2025 | 94% |
-| Class X | Gulmohar Public School | CBSE | – | 2023 | 91% |
+| Class X | Gulmohar Public School | CBSE | PCMB | 2023 | 91% |
 
 ---
 
